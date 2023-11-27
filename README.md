@@ -27,3 +27,4 @@ Been pwnin' em turks in CSN:Z since 2016
 ## Now i'm listening to:
 [<img src="https://novatorem-inky-nine.vercel.app/api/spotify-playing?user=hogb5scuscpsua4yrtnucm9rr" alt="Hardee's Spotify Playing" width="350" />](https://open.spotify.com/user/hogb5scuscpsua4yrtnucm9rr)
 -->
+![](https://hit.yhype.me/github/profile?user_id=37783231)
